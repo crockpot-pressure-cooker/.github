@@ -11,7 +11,7 @@
 
 <p>The <strong>Crockpot Pressure Cooker</strong> is a top-rated multi-cooker that offers both pressure cooking and slow cooking functions, making meal preparation easier and faster. Whether you're looking to cook tender meats, soups, or one-pot meals, this pressure cooker provides a hassle-free cooking experience.</p>
 
-[**✅ Buy No at Amazon**](https://amzn.to/41LdgPl)
+[**✅ Buy Now at Amazon**](https://amzn.to/41LdgPl)
 
 <h2>Why Choose a Crockpot Pressure Cooker?</h2>
 
@@ -27,7 +27,7 @@
     <li><strong>Easy to Clean</strong>: Non-stick inner pot and dishwasher-safe parts.</li>
 </ul>
 
-[**✅ Buy No at Amazon**](https://amzn.to/41LdgPl)
+[**✅ Buy Now at Amazon**](https://amzn.to/41LdgPl)
 
 <h2>Pros & Cons of the Crockpot Pressure Cooker</h2>
 
